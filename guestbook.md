@@ -1,2 +1,2 @@
 Charlie Richardson
-Jess Adis x2
+Jess Adis take 3!
